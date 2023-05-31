@@ -150,6 +150,17 @@ https://www.stedelijk.nl/en/digdeeper/critic-political-practice-detournement
 
 ![](Pasted%20image%2020230518231229.png)
 
+--
+
+Art Sabotage
+
+Art sabotage strives to be perfectly exemplary but at the same time retain an element of opacity — not propaganda but aesthetic shock — apallingly direct yet also subtly angled — action-as-metaphor.
+
+Art Sabotage is the dark side of Poetic Terrorism — creation-through-destruction — but it cannot serve any Party, nor any nihilism, nor even art itself. Just as the banishment of illusion enhances awareness, so the demolition of aesthetic blight sweetens the air of the world of discourse, of the Other. Art Sabotage serves only consciousness, attentiveness, awakeness...
+
+![](https://theanarchistlibrary.org/library/hakim-bey-t-a-z-the-temporary-autonomous-zone-ontological-anarchy-poetic-terrorism#toc4)
+
+--
 ![](Pasted%20image%2020230518231249.png)
 
 ![](Pasted%20image%2020230518231307.png)
