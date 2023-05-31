@@ -117,6 +117,52 @@ Dress up. Leave a false name. Be legendary. The best PT is against the law, but 
 
 ![](Pasted%20image%2020230531095220.png)
 
+## Publications
+
+![](Pasted%20image%2020230531114231.png)
+![](Pasted%20image%2020230531112021.png)
+![](Pasted%20image%2020230531112524.png)
+![](Pasted%20image%2020230531112648.png)
+![](Pasted%20image%2020230531112732.png)
+![](Pasted%20image%2020230531112832.png)
+![](Pasted%20image%2020230531113028.png)
+![](Pasted%20image%2020230531113157.png)
+![](Pasted%20image%2020230531113230.png)
+![](Pasted%20image%2020230531113247.png)
+![](Pasted%20image%2020230531113255.png)
+![](Pasted%20image%2020230531113307.png)
+![](Pasted%20image%2020230531113321.png)
+![](Pasted%20image%2020230531113401.png)
+![](Pasted%20image%2020230531113413.png)
+![](Pasted%20image%2020230531113441.png)
+![](Pasted%20image%2020230531113451.png)
+![](Pasted%20image%2020230531113505.png)
+![](Pasted%20image%2020230531113516.png)
+![](Pasted%20image%2020230531113526.png)
+![](Pasted%20image%2020230531113539.png)
+![](Pasted%20image%2020230531113547.png)
+![](Pasted%20image%2020230531113600.png)
+![](Pasted%20image%2020230531113621.png)
+![](Pasted%20image%2020230531113725.png)
+![](Pasted%20image%2020230531113738.png)
+![](Pasted%20image%2020230531113806.png)
+![](Pasted%20image%2020230531113815.png)
+![](Pasted%20image%2020230531113822.png)
+![](Pasted%20image%2020230531113835.png)
+![](Pasted%20image%2020230531113905.png)
+![](Pasted%20image%2020230531114057.png)
+![](Pasted%20image%2020230531114200.png)
+![](Pasted%20image%2020230531114335.png)
+![](Pasted%20image%2020230531114342.png)
+![](Pasted%20image%2020230531114355.png)
+![](Pasted%20image%2020230531114404.png)
+![](Pasted%20image%2020230531114416.png)
+![](Pasted%20image%2020230531114422.png)
+![](Pasted%20image%2020230531114431.png)
+
+The only member of the Situationist International to remain at its dissolution in 1972 was Guy Debord (1931–1994). He is often held to be synonymous with the movement, but anti-Debordist accounts rightly stress the role of others, such as Asger Jorn (1914–1973) or Constant Nieuwenhuys (1920–2005) who both left the movement as it headed out of its “aesthetic” phase towards its ostensibly more “political” one. Take, for example, Constant’s extraordinary New Babylon project, which he began while a member of the Situationist International and continued independently after separating from it. Constant imagined an entirely new landscape for the earth, one devoted entirely to play. But New Babylon is a landscape that began from the premise that the transition to this new landscape is a secondary problem. Play is one of the key categories of Situationist thought and practice, but would it really be possible to bring this new landscape for play into being entirely by means of play itself?
+
+![](Pasted%20image%2020230531114704.png)
 
 --
 
