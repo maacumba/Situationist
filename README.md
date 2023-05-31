@@ -78,6 +78,10 @@ Graphy comes from the Greek graphein (to write), a decidedly polysemic word. If 
 
 --
 
+![](Pasted%20image%2020230531112021.png)
+
+--
+
 ### APPLICATIVO
 A smartphone app named Dérive was developed in the 21st century by a team including Eduardo Cachucho and Babak Fakhamzadeh. The smartphone app shows a series of simple geography-based directions on a mobile device's screen such as "follow a red vehicle" to create the _dérive_ experience.[[8]](https://en.wikipedia.org/wiki/D%C3%A9rive#cite_note-8)
 
