@@ -16,6 +16,12 @@ In his manifesto for unitary urbanism, [Raoul Vaneigem](https://en.wikipedia.org
 
 -
 
+![Documentary Situationist](https://ubu.com/film/si_passage.html)
+A video documentary combining exhibition footage of the Situationist International exhibitions with film footage of the 1968 Paris student uprising, and graffiti and slogans based on the ideas of Guy Debord (one of the foremost spokesmen of the Situationist International movement). 
+
+-
+
+
 ## Wikipedia
 
 ![](Pasted%20image%2020230531095929.png)
