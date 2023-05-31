@@ -84,8 +84,8 @@ In March 2020, an iOS and Android app called [Randonautica](https://en.wikipedia
 
 ### The photos bellow were taken by aurelia during her visit to an exhibition. The drawings have a relation to the body moving in the space. The result of some sort of workshop in a psychiatric situation.
 
-![[aurelia-photo-from-set-exhibition01.jpeg]]
-![[aurelia-photo-from-set-exhibition02.jpeg]]
+()[aurelia-photo-from-set-exhibition01.jpeg]
+()[aurelia-photo-from-set-exhibition02.jpeg]
 "Lignes d'erre" Fernand Deligny et les présences proches.
 
 
