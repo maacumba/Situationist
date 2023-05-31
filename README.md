@@ -21,7 +21,7 @@ In his manifesto for unitary urbanism, [Raoul Vaneigem](https://en.wikipedia.org
 ![[Pasted image 20230531095929.png]]
 
 
-![[Pasted image 20230531095947.png]]
+(Pasted image 20230531095947.png)
 A 2004 poster announcing a large-scale _dérive_ in London, led by a [psychogeographical](https://en.wikipedia.org/wiki/Psychogeography "Psychogeography") society
 
 
