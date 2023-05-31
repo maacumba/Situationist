@@ -64,6 +64,11 @@ A 24-hour, five-borough roadtrip maps progress on a website, allowing participan
 _Participant, Inc., 95 Rivington St. (betw. Orchard & Ludlow Sts.), 212-254-4334, schedule at  
 psygeocon.org._
 
+--
+
+“Psychogeography is the fact that you have an opinion about a space the moment you step into it,” says the writer and psychogeographer Wilfried Hou Je Bek. “This has as much to do with the space as with our hardwired instincts to determine if it is safe.”
+
+Graphy comes from the Greek graphein (to write), a decidedly polysemic word. If geographers “carve,” “draw,” or “write” the earth (geos), what about psychogeographers? The Latin prefix psyche (breath) adds a zest of soul to the mix, linking earth, mind and foot. Psychogeographic writing can be thought of as an alternative way of reading the city. Wilfried Hou Je Bek calls it “the city-space cut-up.” Just as William Burroughs and Brion Gysin cut and reorganized newspaper texts to reveal their implicit content, so too psychogeographers decode urban space by moving through it in unexpected ways.
 
 --
 
@@ -76,7 +81,29 @@ In March 2020, an iOS and Android app called [Randonautica](https://en.wikipedia
 
 ---
 
+### Poetic Terrorism
 
+Weird dancing in all-night computer-banking lobbies. Unauthorized pyrotechnic displays. Land-art, earth-works as bizarre alien artifacts strewn in State Parks. Burglarize houses but instead of stealing, leave Poetic-Terrorist objects. Kidnap someone & make them happy. Pick someone at random & convince them they’re the heir to an enormous, useless & amazing fortune — say 5000 square miles of Antarctica, or an aging circus elephant, or an orphanage in Bombay, or a collection of alchemical mss. **Later they will come to realize that for a few moments they believed in something extraordinary, & will perhaps be driven as a result to seek out some more intense mode of existence.**
+
+Bolt up brass commemorative plaques in places (public or private) where you have experienced a revelation or had a particularly fulfilling sexual experience, etc.
+
+Go naked for a sign.
+
+Organize a strike in your school or workplace on the grounds that it does not satisfy your need for indolence & spiritual beauty.
+
+Grafitti-art loaned some grace to ugly subways & rigid public momuments — PT-art can also be created for public places: poems scrawled in courthouse lavatories, small fetishes abandoned in parks & restaurants, xerox-art under windshield-wipers of parked cars, Big Character Slogans pasted on playground walls, anonymous letters mailed to random or chosen recipients (mail fraud), **pirate radio transmissions,** wet cement...
+
+The audience reaction or aesthetic-shock produced by PT ought to be at least as strong as the emotion of terror — powerful disgust, sexual arousal, superstitious awe, sudden intuitive breakthrough, dada-esque angst — no matter whether the PT is aimed at one person or many, no matter whether it is “signed” or anonymous, if it does not change someone’s life (aside from the artist) it fails.
+
+PT is an act in a Theater of Cruelty which has no stage, no rows of seats, no tickets & no walls. In order to work at all, PT must categorically be divorced from all conventional structures for art consumption (galleries, publications, media). Even the guerilla Situationist tactics of street theater are perhaps too well known & expected now.
+
+An exquisite seduction carried out not only in the cause of mutual satisfaction but also as a conscious act in a deliberately beautiful life — may be the ultimate PT. The PTerrorist behaves like a confidence-trickster whose aim is not money but CHANGE.
+
+Don’t do PT for other artists, do it for people who will not realize (at least for a few moments) that what you have done is art. Avoid recognizable art-categories, avoid politics, don’t stick around to argue, don’t be sentimental; be ruthless, take risks, vandalize only what must be defaced, do something children will remember all their lives — but don’t be spontaneous unless the PT Muse has possessed you.
+
+Dress up. Leave a false name. Be legendary. The best PT is against the law, but don’t get caught. Art as crime; crime as art. 
+
+---
 
 ![](Pasted%20image%2020230531095220.png)
 
@@ -89,6 +116,15 @@ In March 2020, an iOS and Android app called [Randonautica](https://en.wikipedia
 ![](aurelia-photo-from-set-exhibition02.jpeg)
 "Lignes d'erre" Fernand Deligny et les présences proches.
 
+--
+
+On a dérive one or more persons drop their relations, their work and leisure activities, and all their other usual motives for movement and action, and let themselves be drawn by the attractions of the terrain and the encounters they find there.
+
+Guy Debord – Theory of the Dérive, Internationale Situationniste No. 2
+
+![Psychogeographic Bingo Dérive](https://psychogeographicreview.com/psychogeographic-bingo-drive/)
+
+--
 
 https://www.widewalls.ch/magazine/situationism-influence-history
 
@@ -117,6 +153,10 @@ https://www.stedelijk.nl/en/digdeeper/critic-political-practice-detournement
 ![](Pasted%20image%2020230518231249.png)
 
 ![](Pasted%20image%2020230518231307.png)
+
+--
+
+![](https://i0.wp.com/deserter.co.uk/wp-content/uploads/2014/08/RIVER71.jpg?resize=768%2C576&ssl=1)
 
 ![](Pasted%20image%2020230518231318.png)
 
