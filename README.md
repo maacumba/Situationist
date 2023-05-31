@@ -32,7 +32,8 @@ A 2004 poster announcing a large-scale _dérive_ in London, led by a [psychogeog
 
 _Dérives_ are necessary, according to Situationist theory, because of the increasingly predictable and monotonous experience of [everyday life](https://en.wikipedia.org/wiki/Everyday_life "Everyday life") in [advanced capitalism](https://en.wikipedia.org/wiki/Advanced_capitalism "Advanced capitalism").[](https://en.wikipedia.org/wiki/D%C3%A9rive#cite_note-Debord1956Theory-1)
 
--
+--
+
 ### [psychogeography](https://en.wikipedia.org/wiki/Psychogeography "Psychogeography")
 "specific effects of the geographical environment (whether consciously organized or not) on the emotions and behavior of individuals."[](https://en.wikipedia.org/wiki/D%C3%A9rive#cite_note-Debord1958Definitions-3)
 
