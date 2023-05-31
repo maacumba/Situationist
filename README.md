@@ -18,10 +18,10 @@ In his manifesto for unitary urbanism, [Raoul Vaneigem](https://en.wikipedia.org
 
 ## Wikipedia
 
-!()[Pasted image 20230531095929.png]
+![](Pasted%20image%2020230531095929.png)
 
 
-!(Pasted image 20230531095947.png)
+![](Pasted%20image%2020230531095947.png)
 A 2004 poster announcing a large-scale _dérive_ in London, led by a [psychogeographical](https://en.wikipedia.org/wiki/Psychogeography "Psychogeography") society
 
 
@@ -77,7 +77,7 @@ In March 2020, an iOS and Android app called [Randonautica](https://en.wikipedia
 
 
 
-![[Pasted image 20230531095220.png]]
+![](Pasted%20image%2020230531095220.png)
 
 
 --
@@ -93,13 +93,13 @@ https://www.widewalls.ch/magazine/situationism-influence-history
 
 # How did Situationism Influence Art History?
 
-![[Pasted image 20230518225235.png]]
+![](Pasted%20image%2020230518225235.png)
 
-![[Pasted image 20230518225258.png]]
+![](Pasted%20image%2020230518225258.png)
 
 It is rare for an art movement to be completely original. The _go forward_ meanings of [avant-garde](https://www.widewalls.ch/magazine/avant-garde-movement-theater-music-photography-contemporary-art/) do not mean that its movements are a _tabula rasa_ and this is certainly true for **Situationism**. Spurred by many previous concepts, this artistic and political movement started emerging during the early 1960s in France and it experimented with the idea of _constructing a situation_ - hence the name. Constructing a situation was setting up an environment favorable for the fulfillment of a particular desire. This was the main concept for all representatives of Situationism[1]. All of the initial theories concerning the development of this movement came from an organization called **Situationist International** (often referred to simply as **SI**) - a group whose activities we shell investigate to detail in the remainder of this text.
 
-![[Pasted image 20230518231111.png]]
+![](Pasted%20image%2020230518231111.png)
 
 
 # Critic on the Political Practice of Détournement
@@ -107,22 +107,21 @@ It is rare for an art movement to be completely original. The _go forward_ meani
 https://www.stedelijk.nl/en/digdeeper/critic-political-practice-detournement
 
 
-![[Pasted image 20230518231111.png]]
+![](Pasted%20image%2020230518231111.png)
 
-![[Pasted image 20230518231215.png]]
+![](Pasted%20image%2020230518231215.png)
 
-![[Pasted image 20230518231229.png]]
+![](Pasted%20image%2020230518231229.png)
 
-![[Pasted image 20230518231249.png]]
+![](Pasted%20image%2020230518231249.png)
 
-![[Pasted image 20230518231307.png]]
+![](Pasted%20image%2020230518231307.png)
 
-![[Pasted image 20230518231318.png]]
+![](Pasted%20image%2020230518231318.png)
 
-![[Pasted image 20230518231329.png]]
+![](Pasted%20image%2020230518231329.png)
 
-![[Pasted image 20230518231552.png]]
-
+![](Pasted%20image%2020230518231552.png)
 
 
 
